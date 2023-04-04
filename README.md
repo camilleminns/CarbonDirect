@@ -3,4 +3,4 @@ My cover letter for the 'Environmental and Climate Justice Strategist' position 
 
 Camille Minns
 Clean Energy | Climate Justice | Tech | Community
-www.camilleminns.com
+https://camillemminns.wixsite.com/camillem
